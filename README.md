@@ -2,7 +2,7 @@
 - 👀 I’m interested in programming, animation, drawing, and voice acting.
 - 🌱 I’m currently learning how to live a satisfactory life.
 - 💞️ I’m looking to collaborate on projects that cater to my skill level (very low...self-esteem).
-- 📫 Please do not touch me.
+- 📫You may reach me on my email: simonemarieparn@gmail.com
 - 😄 Pronouns: They/them (Ew, a queer)
 - ⚡ Fun fact: One day I will be the shortest person in my family.
 
